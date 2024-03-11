@@ -2,8 +2,8 @@
 - 👀 I’m interested in loiras
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate em dormir
-- 📫 How to reach me ...
-- 😄 Pronouns: elu
+- 📫 How to reach me onlyfans
+- 😄 Pronouns: elu/delu
 - ⚡ Fun fact: ...
 
 <!---
