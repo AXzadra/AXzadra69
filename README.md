@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AXzadra69
 - 👀 I’m interested in loiras
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning jogar peteca
 - 💞️ I’m looking to collaborate em dormir
 - 📫 How to reach me onlyfans
 - 😄 Pronouns: elu/delu
