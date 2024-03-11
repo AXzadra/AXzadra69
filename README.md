@@ -2,7 +2,7 @@
 - 👀 I’m interested in loiras
 - 🌱 I’m currently learning jogar roblox com otaiko
 - 💞️ I’m looking to collaborate em dormir
-- 📫 How to reach me privacy
+- 📫 How to reach me only
 - 😄 Pronouns: elu/delu
 - ⚡ Fun fact: ...
 
