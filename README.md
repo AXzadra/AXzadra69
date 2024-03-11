@@ -1,4 +1,4 @@
-- 👋 oi, hulk @AXzadra69
+- 👋 oi,  @AXzadra69 ɐɹpɐzxɐ
 - 👀 I’m interested in loiras
 - 🌱 I’m currently learning jogar roblox com otaiko
 - 💞️ I’m looking to collaborate em dormir
